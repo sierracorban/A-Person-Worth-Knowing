@@ -9,10 +9,10 @@ I live in the the greatest city on the planet, the dirty Oceanside. The moment I
 Some of my favorite books are: 
 
 - *KJV Bible* by God
-- *KJV Matthew* by Matthew 
-- *KJV Mark* by Mark 
-- *KJV Luke* by Luke 
-- *KJV John* by John 
+- *KJV Matthew* by Matthew (but really by God)
+- *KJV Mark* by Mark (also by God)
+- *KJV Luke* by Luke (yet again by God)
+- *KJV John* by John (this one's not by God) (Ha! Just kidding, it 100% is by God as well)
 
 ### Personality
 
