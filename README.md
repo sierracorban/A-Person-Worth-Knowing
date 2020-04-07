@@ -19,15 +19,20 @@ Some of my favorite books are:
 My personality is nothing short of *cool.* I'm a hype man, but more lowkey than John Peck. I'd prefer fishing for a 2 lbs Bass than for a 10 lbs Calico. **SURFING** is life. **FISHING** is life. **DIRT BIKE RIDING** is life. (But **Jesus** is the real life).    
 
 
-## Food
+### Food
 
-Almost nothing beats Fraser Farms. But since we've been living in this stupid quarantine (see [link](https://giphy.com/explore/were-all-gonna-die) for how the world is reacting) has got all the restaurants closed, so honestly, I just wish I could eat at: 
+Almost nothing beats Fraser Farms. But since living in this stupid quarantine (see [link](https://giphy.com/explore/were-all-gonna-die) for how the world is reacting) has got all the restaurants closed, I honestly just wish I could eat at: 
 
 - King's Hawaiian Restaurant 
 - Jack's stack
 - Bear Flag Fish Co. 
 
- 
-People, hug your babies, hug your wife, pet your dog, but then shower because of **COVID.**
+### Fun Fact
 
+I might get a duck. 
+
+### Words of Wisdom 
+People, hug your babies, hug your wife, pet your dog, see your church friends, but then shower because of **COVID.**
+
+And get right with the Man. ([VZ](https://www.youtube.com/watch?v=gHaJegv6Sjs))
 
