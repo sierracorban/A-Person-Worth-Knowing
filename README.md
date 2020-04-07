@@ -1,28 +1,33 @@
-# This is a large heading
+# Grant Marcy 
 
-## This is a smaller heading
+### Geography 
 
-And as **imagination** bodies forth,
-The forms of things *unknown*, the poet’s pen,
-Turns them to shapes and gives to airy nothing,
-A local *habitation* and a **name**.
+I live in the the greatest city on the planet, the dirty Oceanside. The moment I moved here, I knew I had always been here in my heart. 
 
-- This is
-- an unordered
-- list
+### Reading 
 
-1. This is
-2. an ordered
-3. list
+Some of my favorite books are: 
 
-Here is `some code` in the middle of a sentence.
+- *KJV Bible* by God
+- *KJV Matthew* by Matthew 
+- *KJV Mark* by Mark 
+- *KJV Luke* by Luke 
+- *KJV John* by John 
 
-```
-This is
-a block
-of code
-```
+### Personality
 
-Here is how you make [a link](https://www.wikipedia.org/).
+My personality is nothing short of *cool.* I'm a hype man, but more lowkey than John Peck. I'd prefer fishing for a 2 lbs Bass than for a 10 lbs Calico. **SURFING** is life. **FISHING** is life. **DIRT BIKE RIDING** is life. (But **Jesus** is the real life).    
 
-![This is an image.](https://github.com/yihui/xaringan/releases/download/v0.0.2/karl-moustache.jpg)
+
+## Food
+
+Almost nothing beats Fraser Farms. But since we've been living in this stupid quarantine (see ![image](https://giphy.com/explore/were-all-gonna-die) for how the world is reacting) has got all the restaurants closed, so honestly, I just wish I could eat at: 
+
+- King's Hawaiian Restaurant 
+- Jack's stack
+- Bear Flag Fish Co. 
+
+ 
+People, hug your babies, hug your wife, pet your dog, but then shower because of **COVID.**
+
+
