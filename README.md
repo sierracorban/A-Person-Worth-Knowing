@@ -31,9 +31,9 @@ Almost nothing beats Fraser Farms. But since living in this stupid quarantine (s
 
 I might get a duck. 
 
-### Other Fun Fact 
+### Another Fun Fact 
 
-I have an amazing girlfriend, who thinks I'm the strongest, most handsome guy on God's good green earth. She likes me a lot, especially when I hug her tight. She misses me when I'm gone (kinda doesn't want me to leave). She's not very good at cooking, but she uses butter, so her food always tastes better than mine (except for when I grill; she loves it when I grill; it gets her turned on). She loves that I love the Lord; but boy does her face light up when I pull up in my truck and cowboy hat to pick her up. She ain't even met anyone more adventurous, and she loves the thrill I bring to her life. She's an artist, and acrobat, and a poet, and she won't stop talking about babies, but that's how it is with women when they meet a good man; they start thinking about babies. She's cool, and she thinks I'm cool.  
+I have an amazing girlfriend, who thinks I'm the strongest, most handsome guy on the Good Lord's green earth. She likes me a lot, and especially likes it when I hug her tight. She misses me when I'm gone (kinda never want me to leave). She's not very good at cooking, but she uses butter, so her food always tastes better than mine (except for when I grill; she loves it when I grill; she says nothing turns her on more than a good-likin' man grillin'). She loves that I love the Lord; but boy does her face light up when I pull up in my truck and cowboy hat to pick her up. She ain't ever met anyone more adventurous, and she loves the thrill I bring to her life. She's an artist, an acrobat, and a poet, and she won't stop talking about babies, but that's how it is with women when they meet a good man; they start thinking about babies. She's cool, and she thinks I'm cool.  
 
 ### Words of Wisdom 
 People, hug your babies, hug your wife, pet your dog, see your church friends, but then shower because of **COVID.**
