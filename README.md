@@ -21,7 +21,7 @@ My personality is nothing short of *cool.* I'm a hype man, but more lowkey than 
 
 ## Food
 
-Almost nothing beats Fraser Farms. But since we've been living in this stupid quarantine (see ![image](https://giphy.com/explore/were-all-gonna-die) for how the world is reacting) has got all the restaurants closed, so honestly, I just wish I could eat at: 
+Almost nothing beats Fraser Farms. But since we've been living in this stupid quarantine (see [link](https://giphy.com/explore/were-all-gonna-die) for how the world is reacting) has got all the restaurants closed, so honestly, I just wish I could eat at: 
 
 - King's Hawaiian Restaurant 
 - Jack's stack
